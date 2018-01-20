@@ -1,0 +1,1 @@
+<center><hr>Copyright &copy; 2018 Powered by Ferdiansyah Akbar Fauzi</center></hr></center>
